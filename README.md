@@ -26,7 +26,7 @@
 | 📲 **APP下载**  | **海外线路推荐**   | **[https://51awapp.com](https://51awapp.com)** |
 | 🛰️ **福利导航** | **国内免翻墙推荐** | **[https://51.mejxtfqc.cc](https://51.mejxtfqc.cc)** |
 | 🌐 **福利导航** | **海外线路推荐**   | **[https://xpornhdh.com](https://xpornhdh.com)** |
-| 🍉 **吃瓜q群**  | **独家爆料发布地** | **[(http://fm.a2q2fcadf79.cn/t/k4sI)](http://fm.a2q2fcadf79.cn/t/k4sI))** |
+| 🍉 **吃瓜q群**  | **独家爆料发布地** | **[(http://fm.a2q2fcadf79.cn/t/k4sI)](http://fm.a2q2fcadf79.cn/t/k4sI)** |
 
 ---
 
