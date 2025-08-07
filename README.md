@@ -20,13 +20,13 @@
 
 | **类型**        | **说明**           | **链接** |
 |----------------|--------------------|----------|
-| 🔥 **主入口**   | **国内免翻墙通道** | **[https://51awb31.com](https://51awb31.com)**（2025年8月1日更新） |
+| 🔥 **主入口**   | **国内免翻墙通道** | **[https://51awb32.com](https://51awb32.com)**（2025年8月1日更新） |
 | 🛠 **永久地址** | **稳定直达**       | **[https://51awb.com](https://51awb.com)** |
 | 🌍 **APP下载**  | **免翻墙一键直达** | **[https://www.ldwzjrpw.club](https://www.ldwzjrpw.club)** |
 | 📲 **APP下载**  | **海外线路推荐**   | **[https://51awapp.com](https://51awapp.com)** |
 | 🛰️ **福利导航** | **国内免翻墙推荐** | **[https://51.mejxtfqc.cc](https://51.mejxtfqc.cc)** |
 | 🌐 **福利导航** | **海外线路推荐**   | **[https://xpornhdh.com](https://xpornhdh.com)** |
-| 🍉 **吃瓜q群**  | **独家爆料发布地** | **[(http://fm.a2q2fcadf79.cn/t/k4sI)](http://fm.a2q2fcadf79.cn/t/k4sI)** |
+
 
 ---
 
