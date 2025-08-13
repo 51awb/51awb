@@ -33,7 +33,7 @@
 - 官方入口：[https://51aw.com](https://51aw.com)
 - 最新黑料爆料频道  
 - 暗网猎奇社群交流群  
-- 备用邮箱：support@51awb.com
+- 自动获取最新地址邮箱：anwangchigua@gmail.com（发送任意邮件到该邮箱可自动获得51暗网最新地址）  
 
 ---
 
