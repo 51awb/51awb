@@ -21,7 +21,7 @@
 | **类型**        | **说明**           | **链接** |
 |----------------|--------------------|----------|
 | 🔥 **主入口**   | 国内免翻墙通道直达 51暗网 最新黑料 | **[https://51awb32.com](https://51awb32.com)**（2025年8月1日更新） |
-| 🛠 **永久地址** | 稳定访问 51暗网 不迷路 | **[https://51awb.com](https://51awb.com)** |
+| 🛠 **永久地址** | 稳定访问 51暗网 不迷路 | **[https://51aw.com](https://51aw.com)** |
 | 🌍 **APP下载**  | 51暗网 移动端免翻墙入口 | **[https://www.ldwzjrpw.club](https://www.ldwzjrpw.club)** |
 | 📲 **APP下载**  | 51暗网 海外高速线路推荐 | **[https://51awapp.com](https://51awapp.com)** |
 | 🛰️ **福利导航** | 国内免翻墙访问 51暗网 推荐 | **[https://51.mejxtfqc.cc](https://51.mejxtfqc.cc)** |
@@ -30,7 +30,7 @@
 ---
 
 ## 📬 **51暗网联系方式 & 社群**
-- 官方入口：[https://51awb.com](https://51awb.com)
+- 官方入口：[https://51aw.com](https://51aw.com)
 - 最新黑料爆料频道  
 - 暗网猎奇社群交流群  
 - 备用邮箱：support@51awb.com
