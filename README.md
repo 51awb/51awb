@@ -22,9 +22,9 @@
 |----------------|--------------------|----------|
 | 🔥 **主入口**   | 国内免翻墙通道直达 51暗网 最新黑料 | **[https://51awb35.com](https://51awb35.com)**（2025年8月21日更新） |
 | 🛠 **永久地址** | 稳定访问 51暗网 不迷路 | **[https://51aw.com](https://51aw.com)** |
-| 🌍 **APP下载**  | 51暗网 移动端免翻墙入口 | **[https://www.eugvnpn.cc](https://www.eugvnpn.cc)** |
+| 🌍 **APP下载**  | 51暗网 移动端免翻墙入口 | **[https://www.mdxviqup.com](https://www.mdxviqup.com)** |
 | 📲 **APP下载**  | 51暗网 海外高速线路推荐 | **[https://51awapp.com](https://51awapp.com)** |
-| 🛰️ **福利导航** | 国内免翻墙访问 51暗网 推荐 | **[https://51.etnmtdc.cc](https://51.etnmtdc.cc)** |
+| 🛰️ **福利导航** | 国内免翻墙访问 51暗网 推荐 | **[https://51.qfkaeevv.top](https://51.qfkaeevv.top)** |
 | 🌐 **福利导航** | 海外线路访问 51暗网 推荐 | **[https://xpornhdh.com](https://xpornhdh.com)** |
 
 ---
