@@ -16,15 +16,15 @@
 
 ---
 
-## 🌐 **51暗网最新地址导航（每日更新）**
+## 🌐 **51暗网最新地址导航（9月15日更新）**
 
 | **类型**        | **说明**           | **链接** |
 |----------------|--------------------|----------|
-| 🔥 **主入口**   | 国内免翻墙通道直达 51暗网 最新黑料 | **[https://51awb38.com](https://51awb38.com)**（2025年9月5日更新） |
+| 🔥 **主入口**   | 国内免翻墙通道直达 51暗网 最新黑料 | **[https://51awb39.com](https://51awb39.com)**（2025年9月15日更新） |
 | 🛠 **永久地址** | 稳定访问 51暗网 不迷路 | **[https://51aw.com](https://51aw.com)** |
-| 🌍 **APP下载**  | 51暗网 国内免翻墙入口 | **[https://app10.zgwfmdxe.cc](https://app10.zgwfmdxe.cc)** |
+| 🌍 **APP下载**  | 51暗网 国内免翻墙入口 | **[https://app11.jermfxtp.cc](https://app11.jermfxtp.cc)** |
 | 📲 **APP下载**  | 51暗网 海外高速线路推荐 | **[https://51awapp.com](https://51awapp.com)** |
-| 🛰️ **福利导航** | 国内免翻墙访问 51暗网 推荐 | **[https://xp06.zljywtil.cc](https://xp06.zljywtil.cc)** |
+| 🛰️ **福利导航** | 国内免翻墙访问 51暗网 推荐 | **[https://xp07.jhekrlmt.cc](https://xp07.jhekrlmt.cc)** |
 | 🌐 **福利导航** | 海外线路访问 51暗网 推荐 | **[https://xpornhdh.com](https://xpornhdh.com)** |
 
 ---
